@@ -1,1 +1,1 @@
-### 👋Smart Contract Writer/DeFi engineer/Full-stack engineer/Project Manager👋
+### 👋Solidity | Smart Contract | DeFi | Web3 | Full-Stack👋
