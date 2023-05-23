@@ -1,1 +1,1 @@
-### 👋Python Full Stack Developer | GIS Analyst 👋
+### 👋Python Full Stack Developer👋
